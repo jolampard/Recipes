@@ -8,3 +8,5 @@
 
 
 ## Steps
+
+De stone the avocados
