@@ -9,4 +9,4 @@
 
 ## Steps
 
-De stone the avocados
+- De stone the avocados
